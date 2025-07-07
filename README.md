@@ -16,3 +16,8 @@ Here are some ideas to get you started:
 -->
 
 - 🌱 I’m currently learning Programming Language
+- 💬 Ask me about Trading
+- ⚡ Fun fact: I love eat Kebab, Mie Ayam, and Ice Cincau
+- 📫 How to reach me:
+      Instagram: myxxinee
+      Facebook: Bahrii 
