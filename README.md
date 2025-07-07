@@ -19,5 +19,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about Trading
 - ⚡ Fun fact: I love eat Kebab, Mie Ayam, and Ice Cincau
 - 📫 How to reach me:
-      Instagram: myxxinee
-      Facebook: Bahrii 
+      - Instagram: myxxinee
+      - Facebook: Bahrii 
